@@ -1,1 +1,1 @@
-# Weeding
+# Wedding
